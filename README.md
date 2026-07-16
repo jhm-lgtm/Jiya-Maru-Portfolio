@@ -16,7 +16,7 @@ I am a Electronics and Communication Engineering student passionate about:
 
 Visit my portfolio:
 
-👉 [View Portfolio](https://jiya-maru.ai.studio/)
+👉 [View my portfolio](https://jiya-maru.ai.studio/)
 
 
 
